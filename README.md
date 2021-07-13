@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi 👋, I'm [Ebru Betul](https://www.linkedin.com/in/ebrubetulk/) 
+
+
+### Open to learning, loving to research. 
+
 
 <!--
 **Ebetl/Ebetl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
